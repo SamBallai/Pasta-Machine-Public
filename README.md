@@ -10,6 +10,6 @@ The model and data have been omitted due to github size limits, but creating the
 Alternatively, feel free to drop me a message and I can send them to you. Happy pasta-making!
 </p>
 
-<p align="center">
+
 ![Discord_4X4LxfDk4m](https://github.com/user-attachments/assets/ea26f674-6a54-4243-8071-006391c2f314)![Discord_YPIfnpVQjJ](https://github.com/user-attachments/assets/3087ce5b-b9a0-4563-9541-fd20f6997f7d) ![Discord_yfzI1mGgnT](https://github.com/user-attachments/assets/f2435a4d-8ce2-4794-be00-0e30ad794f3f)
-</p>
+
